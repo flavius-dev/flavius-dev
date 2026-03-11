@@ -125,7 +125,7 @@ Current areas of interest:
 GitHub  
 https://github.com/flavius-dev
 
-Linkedin  
+LinkedIn  
 https://www.linkedin.com/in/flaviuscondoiu
 
 Instagram  
