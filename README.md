@@ -129,11 +129,9 @@ Linkedin
 https://www.linkedin.com/in/flaviuscondoiu
 
 Instagram 
-
 https://www.instagram.com/condi.fla
 
 Email 
-
 condoiuflavius3@gmail.com 
 
 
