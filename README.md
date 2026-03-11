@@ -125,14 +125,14 @@ Current areas of interest:
 GitHub  
 https://github.com/flavius-dev
 
-Linkedin
+Linkedin 
 https://www.linkedin.com/in/flaviuscondoiu
 
-Instagram
+Instagram 
 https://www.instagram.com/condi.fla
 
-Email
-condoiuflavius3@gmail.com
+Email 
+condoiuflavius3@gmail.com 
 
 ---
 
