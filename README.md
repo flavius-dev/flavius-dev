@@ -124,8 +124,10 @@ Current areas of interest:
 
 GitHub  
 https://github.com/flavius-dev
+
 Linkedin
 https://www.linkedin.com/in/flaviuscondoiu
+
 Instagram
 https://www.instagram.com/condi.fla
 
